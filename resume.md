@@ -26,7 +26,7 @@
 # Leadership
 ### Head Organizer • Peaceful Protest • Fort Mitchell, KY     •                                                             June 2020
 * Communicated with city officials, created detailed plans, garnered support through social media, gave a speech to the crowd and led the march.
-* [Cincinnati Enquirer](https://www.cincinnati.com/story/news/2020/06/06/fort-mitchell-protest-more-than-200-gather-george-floyd-rally-northern-kentucky/3166637001/)
+* [Cincinnati Enquirer](https://www.cincinnati.com/story/news/2020/06/08/cincinnati-black-lives-matter-protest-big-crowds-more-planned/5317428002/)
 * [Local Media Coverage](http://www.livingmagazines.com/2020/10/the-rippling-change-in-fort-mitchell.html)
 
 
