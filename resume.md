@@ -1,4 +1,4 @@
-# John Willis • [LinkedIn](https://www.linkedin.com/in/johnwillis2000/) • jwillis02@email.wm.edu 
+# John Willis 
 # ___Education___
 ### William and Mary •                                   Fall 2019 – Spring 2023
 
